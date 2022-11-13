@@ -57,7 +57,6 @@
 - https://komikindo.id/infinite-level-up-in-murim-chapter-57
 - https://komikindo.id/infinite-level-up-in-murim-chapter-58
 - https://komikindo.id/infinite-level-up-in-murim-chapter-59
-# ksd
 - https://komikindo.id/infinite-level-up-in-murim-chapter-60
 - https://komikindo.id/infinite-level-up-in-murim-chapter-61
 - https://komikindo.id/infinite-level-up-in-murim-chapter-62
@@ -107,6 +106,8 @@
 - https://komikindo.id/infinite-level-up-in-murim-chapter-106
 - https://komikindo.id/infinite-level-up-in-murim-chapter-107
 - https://komikindo.id/infinite-level-up-in-murim-chapter-108
+- 
+# ksd
 - https://komikindo.id/infinite-level-up-in-murim-chapter-109
 - https://komikindo.id/infinite-level-up-in-murim-chapter-110
 - https://komikindo.id/infinite-level-up-in-murim-chapter-111
