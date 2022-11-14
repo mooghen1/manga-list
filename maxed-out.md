@@ -25,6 +25,7 @@
 - https://komikindo.id/maxed-out-leveling-chapter-25
 - https://komikindo.id/maxed-out-leveling-chapter-26
 - https://komikindo.id/maxed-out-leveling-chapter-27
+- alasjk
 - https://komikindo.id/maxed-out-leveling-chapter-28
 - https://komikindo.id/maxed-out-leveling-chapter-29
 - https://komikindo.id/maxed-out-leveling-chapter-30
