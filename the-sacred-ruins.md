@@ -52,6 +52,7 @@
 - https://komikindo.id/the-sacred-ruins-chapter-52
 - https://komikindo.id/the-sacred-ruins-chapter-53
 - https://komikindo.id/the-sacred-ruins-chapter-54
+asd
 - https://komikindo.id/the-sacred-ruins-chapter-55
 - https://komikindo.id/the-sacred-ruins-chapter-56
 - https://komikindo.id/the-sacred-ruins-chapter-57
