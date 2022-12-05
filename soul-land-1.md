@@ -37,6 +37,7 @@
 - https://komikindo.id/soul-land-chapter-37
 - https://komikindo.id/soul-land-chapter-38
 - https://komikindo.id/soul-land-chapter-39
+rg
 - https://komikindo.id/soul-land-chapter-40
 - https://komikindo.id/soul-land-chapter-41
 - https://komikindo.id/soul-land-chapter-42
