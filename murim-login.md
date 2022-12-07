@@ -128,3 +128,7 @@
 - https://komikindo.id/murim-login-chapter-128
 - https://komikindo.id/murim-login-chapter-129
 - https://komikindo.id/murim-login-chapter-130
+- https://komikindo.id/murim-login-chapter-131
+- https://komikindo.id/murim-login-chapter-132
+- https://komikindo.id/murim-login-chapter-133
+
